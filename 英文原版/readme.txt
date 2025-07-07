@@ -1,54 +1,8 @@
-****************ì«·çÏÂÔØ**************************
-
-  http://www.jfsky.com  Ö÷Õ¾
-  http://www.21down.cn  ÊÀ¼ÍÏÂÔØÖÐÐÄ
-Ìá¹© ¸÷ÀàÆÆ½âÈí¼þ£¬×¢²á»ú£¬ºº»¯Èí¼þ£¬Ô´Âë£¬Êé¼¯.ÓÎÏ·.¸ßËÙÏÂÔØ·þÎñ
-
-***************************************************************
-
-                      »¶Ó­·ÃÎÊì«·çÈí¼þÔ°£º
-                     
-                      ¾«²ÊµÄÈí¼þµÈ×ÅÄãÀ´ÄÃ£¡£¡
-
-               ¨q¨T¨T¨T¨T¨T¨T¨T¨T¨T¨T¨T¨T¨T¨T¨T¨r
-               ¨U        ì« ·ç ÏÂ ÔØ Õ¾        ¨U
- ¨q¨T¨T¨T¨T¨T¨T©È     http://www.jfsky.com     ©À¨T¨T¨T¨T¨T¨T¨r
- ¨U            ¨U         ÊÀ ¼Í ÏÂ ÔØ          ¨U            ¨U
- ¨U            ¨U     http://www.21down.cn     ¨U            ¨U
- ¨U            ¨t¨T¨T¨T¨T¨T¨T¨T¨T¨T¨T¨T¨T¨T¨T¨T¨s            ¨U
- ¨U                                                          ¨U
- ¨UÉùÃ÷£º                                                    ¨U
- ¨U   1) ±¾Õ¾²»±£Ö¤ËùÌá¹©Èí¼þ»ò³ÌÐòµÄÍêÕûÐÔºÍ°²È«ÐÔ¡£        ¨U
- ¨U   2) ÇëÔÚÊ¹ÓÃÇ°²é¶¾¡£                                    ¨U
- ¨U   4) ×ªÔØ±¾Õ¾Ìá¹©µÄ×ÊÔ´ÇëÎðÉ¾³ý±¾ËµÃ÷ÎÄ¼þ¡£              ¨U
- ¨U   5) ±¾Õ¾Ìá¹©µÄ³ÌÐò¾ùÎªÍøÉÏËÑ¼¯£¬Èç¹û¸Ã³ÌÐòÉæ¼°»òÇÖº¦µ½Äú¨U
- ¨U      µÄ°æÈ¨ÇëÁ¢¼´Ð´ÐÅÍ¨ÖªÎÒÃÇ¡£                          ¨U
- ¨U   6) ±¾Õ¾Ìá¹©Èí¼þÖ»¿É¹©ÑÐ¾¿Ê¹ÓÃ£¬ÇëÔÚÏÂÔØ24Ð¡Ê±ÄÚÉ¾³ý,   ¨U
- ¨U      ÇÐÎðÓÃÓÚÉÌÒµÓÃÍ¾£¬ÓÉ´ËÒýÆðÒ»ÇÐºó¹ûÓë±¾Õ¾ÎÞ¹Ø¡£      ¨U
- ¨U                                                          ¨U
- ¨U                                                          ¨U
- ¨U     1. ÍÆ¼öÊ¹ÓÃ£ºWinRAR V3.2ÒÔÉÏ°æ±¾½âÑ¹±¾Õ¾Èí¼þ         ¨U
- ¨U     2. ±¾Õ¾³Ð½ÓIDC£¬ÐéÄâÖ÷»ú£¬ÍøÕ¾ÖÆ×÷£¬µÈÒµÎñ           ¨U   
- ¨U                                                        ¡¡¨U                               
- ¨U                  QQ:25263269                             ¨U                                                ¨U                                                          ¨U
- ¨U         ì«·çÈí¼þÕ¾: http://www.jfsky.com                 ¨U
- ¨U                                                          ¨U
- ¨U         21ÊÀ¼ÍÏÂÔØ: http://www.21down.cn                 ¨U
- ¨U                                                          ¨U
- ¨U          ¿Õ¼ä¹ºÂò;ÍøÕ¾ºÏ×÷  QQ:25263269                  ¨U
- ¨U                                                          ¨U         
- ¨U                                                          ¨U
- ¨U    ¨q©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤¨r    ¨U
- ¨t¨T¨T©È      ì«·çÏÂÔØÕ¾ http://www.jfsky.com         ©À¨T¨T¨s
-       ¨t©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤¨s
-
-Èç¹ûÄã¾õµÃÎÒÃÇÍøÕ¾ÄÜ¸øÄã´øÀ´·½±ã£¬Çë°Ñhttp://www.jfsky.com ÍøÕ¾½éÉÜ¸øÄãµÄÅóÓÑ£¡£¡£¡
-
-Èç¹ûÄã¾õµÃÎÒÃÇÍøÕ¾ÓÐÊ²Ã´²»×ã£¬ÇëÁôÑÔÎÒÃÇÂÛÌ³£ºbbs.jfsky.com
-
-ÔÙÒ»´Î¸ÐÖxÄú¶ÔÎÒ‚ƒµÄÖ§³Ö£¡šgÓ­½›³£µ½ÎÒ‚ƒÄÇÑY×ö¿Í
-
-                                   ÍøÕ¾ÂÛÌ³£ºhttp://bbs.jfsky.com 
-                                   ÊÀ¼ÍÏÂÔØ: http://www.21down.cn
-                                   
-                                   ì«·çÈí¼þÕ¾ 2005.04. 15 23:03
+ â•‘å£°æ˜Žï¼š                                                    â•‘
+ â•‘   1) æœ¬ç«™ä¸ä¿è¯æ‰€æä¾›è½¯ä»¶æˆ–ç¨‹åºçš„å®Œæ•´æ€§å’Œå®‰å…¨æ€§ã€‚        â•‘
+ â•‘   2) è¯·åœ¨ä½¿ç”¨å‰æŸ¥æ¯’ã€‚                                    â•‘
+ â•‘   4) è½¬è½½æœ¬ç«™æä¾›çš„èµ„æºè¯·å‹¿åˆ é™¤æœ¬è¯´æ˜Žæ–‡ä»¶ã€‚              â•‘
+ â•‘   5) æœ¬ç«™æä¾›çš„ç¨‹åºå‡ä¸ºç½‘ä¸Šæœé›†ï¼Œå¦‚æžœè¯¥ç¨‹åºæ¶‰åŠæˆ–ä¾µå®³åˆ°æ‚¨â•‘
+ â•‘      çš„ç‰ˆæƒè¯·ç«‹å³å†™ä¿¡é€šçŸ¥æˆ‘ä»¬ã€‚                          â•‘
+ â•‘   6) æœ¬ç«™æä¾›è½¯ä»¶åªå¯ä¾›ç ”ç©¶ä½¿ç”¨ï¼Œè¯·åœ¨ä¸‹è½½24å°æ—¶å†…åˆ é™¤,   â•‘
+ â•‘      åˆ‡å‹¿ç”¨äºŽå•†ä¸šç”¨é€”ï¼Œç”±æ­¤å¼•èµ·ä¸€åˆ‡åŽæžœä¸Žæœ¬ç«™æ— å…³ã€‚      â•‘
